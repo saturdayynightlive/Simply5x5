@@ -16,7 +16,7 @@ For any questions, bug reports, or feedback, please feel free to reach out to us
 
 Your privacy is important to us. You can review our full Privacy Policy for the app by following the link below.
 
-- [View Privacy Policy](https://www.termsfeed.com/live/f9c98a06-2f20-4d4c-a8bb-61b707c70edb)
+- [View Privacy Policy](https://www.termsfeed.com/live/b6e608fd-6b34-4b80-9052-81488d8ee5b6)
 
 ---
 
